@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Issac-00
+- 👀 I’m interested in coding, gaming (specially minecraft and osu) and youtubing.
+- 🌱 I’m currently learning to play osu like a pro and making a discord bot called Aether.
+- 📫 How to reach me: Discord: __issac Email: silentguys00@gmail.com
+- 😄 Pronouns: he/his
